@@ -1,10 +1,10 @@
-Automatic Surfshark Client | DNS leak protection + torrenting support is the best Surfshark client with DNS leak protection and torrenting support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/surfshark-cz08/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
