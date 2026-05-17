@@ -1,4 +1,4 @@
-
+Automatic Surfshark Client | DNS leak protection + torrenting support is the best Surfshark client with DNS leak protection and torrenting support. Secure and optimized.
 
 
 
