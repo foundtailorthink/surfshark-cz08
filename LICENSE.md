@@ -1,10 +1,10 @@
-Automático Surfshark Cliente | protección contra fugas de DNS + soporte para torrent es el mejor Surfshark cliente con protección contra fugas de DNS y soporte para torrent.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://foundtailorthink.github.io/surfshark-cz08/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
