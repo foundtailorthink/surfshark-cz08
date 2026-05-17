@@ -1,10 +1,10 @@
-آلي Surfshark عميل | حماية تسرب DNS + دعم التورنت هو أفضل Surfshark عميل مع حماية تسرب DNS و دعم التورنت. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/surfshark-cz08/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
